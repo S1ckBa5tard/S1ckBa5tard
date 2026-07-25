@@ -2,4 +2,5 @@
 
  MY DUMB OC
 
-![gif alt](https://github.com/S1ckBa5tard/S1ckBa5tard/blob/b09200525f8ba9496e96860b8a17b1db78b1d0d5/gif.gif)
+<img src="![gif alt](https://github.com/S1ckBa5tard/S1ckBa5tard/blob/b09200525f8ba9496e96860b8a17b1db78b1d0d5/gif.gif)" width="250" height="250" />
+
