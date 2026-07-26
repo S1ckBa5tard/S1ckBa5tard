@@ -4,11 +4,7 @@ HELLO!!!
 
 MY DUMB OC:
 
-<img width="400" height="550" alt="d9049c69-51f7-40ff-9ac6-56b114b0d5be" src="https://github.com/user-attachments/assets/96f1a3b3-26a6-4f49-bd07-0a06897f8c22" />
-
-
-
-
+<img width="400" height="550" alt="1c57037f-bd0b-47f4-9292-1094e80eb9d7" src="https://github.com/user-attachments/assets/f22cae6d-ac36-4d87-a9c3-02c8a2dc7b56" />
 
 ![gif alt](https://github.com/user-attachments/assets/b0376a38-b2aa-43e6-9f69-eca78538a322) ![gif alt](https://github.com/user-attachments/assets/a17e5845-334c-4250-9966-b4d87e5320ad)
 
