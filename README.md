@@ -1,3 +1,7 @@
+HELLO!!!
+<img width="200" height="166" alt="verity" src="https://github.com/user-attachments/assets/ceb132eb-d3a6-4980-9aa2-f578a30d15f8" /> 
+
+
 MY DUMB OC:
 
 <img width="400" height="550" alt="d9049c69-51f7-40ff-9ac6-56b114b0d5be" src="https://github.com/user-attachments/assets/96f1a3b3-26a6-4f49-bd07-0a06897f8c22" />
