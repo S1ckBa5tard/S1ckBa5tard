@@ -6,5 +6,5 @@ MY DUMB OC:
 
 
 
-<img width="191" height="196" alt="the-mandela-catalogue-mark-heathcliff" src="https://github.com/user-attachments/assets/b0376a38-b2aa-43e6-9f69-eca78538a322" />![gif alt](https://github.com/S1ckBa5tard/S1ckBa5tard/blob/e0e00744bc807e328ea112db8b33bd774cce936d/fig.gif)
+<img width="191" height="196" alt="the-mandela-catalogue-mark-heathcliff" src="https://github.com/user-attachments/assets/b0376a38-b2aa-43e6-9f69-eca78538a322" /><img width="100" height="100" alt="mandela-catalogue-victim-1" src="https://github.com/user-attachments/assets/a17e5845-334c-4250-9966-b4d87e5320ad" />
 
