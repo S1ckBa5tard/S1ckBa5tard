@@ -1,5 +1,5 @@
 HELLO!!!
-<img width="200" height="166" alt="verity" src="https://github.com/user-attachments/assets/ceb132eb-d3a6-4980-9aa2-f578a30d15f8" /> 
+ ![Gif alt](https://github.com/S1ckBa5tard/S1ckBa5tard/blob/7ffa3c1d84d1334ca7bb21bdb7b428f23b17d223/verity.gif)
 
 
 MY DUMB OC:
