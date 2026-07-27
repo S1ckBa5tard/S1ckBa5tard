@@ -3,7 +3,7 @@
  $${\color{#a6a390}⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}$$
  $${\color{#ff3f00}𝒪𝓃ℯ \space \color{#ffa41c}𝒲𝒶𝓎 \space \color{#ff8}𝒪𝓇 \space \color{#94f000}𝒜𝓃ℴ𝓉𝒽ℯ𝓇}$$   $${\color{#a6a390}⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}$$
 
-<h1 align="center"> ﹒﹏﹒ıllı<img width="506" height="511" alt="38c83f30-9759-4379-a5c7-916f6d1e4aa3" src="https://github.com/user-attachments/assets/2c574f6d-8b04-43ba-a3a4-53e768c43daf" />ıllı﹒﹏﹒<h1>
+<h1 align="center"> ﹒﹏﹒ıllı﹒﹏﹒<img width="506" height="511" alt="38c83f30-9759-4379-a5c7-916f6d1e4aa3" src="https://github.com/user-attachments/assets/2c574f6d-8b04-43ba-a3a4-53e768c43daf" />﹒﹏﹒ıllı﹒﹏﹒<h1>
 
 <h1 align="center">"ʜᴇʟʟᴏ! ɪ'ᴍ ᴠᴇʀɪᴛʏ, ʏᴏᴜʀ ᴘᴇʀsᴏɴᴀʟ ʜᴇʟᴘᴇʀ ғʀɪᴇɴᴅ. ᴀsᴋ ᴍᴇ ᴀɴʏᴛʜɪɴɢ, ɪ ᴋɴᴏᴡ ᴇᴠᴇʀʏᴛʜɪɴɢ"
 
