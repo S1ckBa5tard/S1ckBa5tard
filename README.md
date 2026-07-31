@@ -1,4 +1,4 @@
-<h1 align="center">.‿͞‿͞‿͞‿͞‿͞୨୧‿͞‿͞‿͞‿͞‿.</h1>
+$${\color{#d1cdb5}.‿͞‿͞‿͞‿͞‿͞୨୧‿͞‿͞‿͞‿͞‿.}$$
 
  $${\color{#a6a390}⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}$$
  $${\color{#ff3f00}𝒪𝓃ℯ \space \color{#ffa41c}𝒲𝒶𝓎 \space \color{#ff8}𝒪𝓇 \space \color{#94f000}𝒜𝓃ℴ𝓉𝒽ℯ𝓇}$$   $${\color{#a6a390}⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}$$
