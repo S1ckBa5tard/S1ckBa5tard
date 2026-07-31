@@ -11,7 +11,7 @@ $${\color{#d1cdb5}.‿͞‿͞‿͞‿͞‿͞୨୧‿͞‿͞‿͞‿͞‿.}$$
 ![Gif alt](https://github.com/S1ckBa5tard/S1ckBa5tard/blob/7ffa3c1d84d1334ca7bb21bdb7b428f23b17d223/verity.gif)</h1>
 
 
-╰┈➤ˎˊ˗ HELLO! call me mark or whatever u wanna idm. Im on pt 24/7 (why is this game so addicting) afk doing absolutely nothing unless im w my pooks, so feel free to w2i/c+h, i dont bite [not 100% sure abt that lelele].A bit of a shy guy but i ♡ making friends, so feel free 2 talk w me, id love to give u some company^_^.
+╰┈➤ˎˊ˗ HELLO! call me mark or whatever u wanna idm. Im on pt 24/7 (why is this game so addicting) afk doing absolutely nothing unless im w my pooks\cant forget abt my twin yoshi ofc,,, so feel free to w2i/c+h, i dont bite [not 100% sure abt that lelele].A bit of a shy guy but i ♡ making friends, so feel free 2 talk w me, id love to give u some company^_^.
 
 $${\color{#5d26b8}P \color{#7b26b8}u \color{#8e26b8}r \color{#9a26b7}p \color{#ad26b5}s }$$
 <h1 align="center"><img width="498" height="498" alt="webu" src="https://github.com/user-attachments/assets/cd059fac-b656-4afb-848b-b47521173922" /></h1>
