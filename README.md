@@ -3,7 +3,8 @@
  $${\color{#a6a390}⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}$$
  $${\color{#ff3f00}𝒪𝓃ℯ \space \color{#ffa41c}𝒲𝒶𝓎 \space \color{#ff8}𝒪𝓇 \space \color{#94f000}𝒜𝓃ℴ𝓉𝒽ℯ𝓇}$$   $${\color{#a6a390}⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}$$
 
-<h1 align="center"> ﹒﹏﹒ıllı﹒﹏﹒<img width="506" height="511" alt="38c83f30-9759-4379-a5c7-916f6d1e4aa3" src="https://github.com/user-attachments/assets/2c574f6d-8b04-43ba-a3a4-53e768c43daf" />﹒﹏﹒ıllı﹒﹏﹒<h1>
+<h1 align="center"> ﹒﹏﹒ıllı﹒﹏﹒<img width="516" height="521" alt="image" src="https://github.com/user-attachments/assets/d667fac9-cad0-469d-af98-3cebdcaf15da" />
+  ﹒﹏﹒ıllı﹒﹏﹒<h1>
 
 <h1 align="center">"ʜᴇʟʟᴏ! ɪ'ᴍ ᴠᴇʀɪᴛʏ, ʏᴏᴜʀ ᴘᴇʀsᴏɴᴀʟ ʜᴇʟᴘᴇʀ ғʀɪᴇɴᴅ. ᴀsᴋ ᴍᴇ ᴀɴʏᴛʜɪɴɢ, ɪ ᴋɴᴏᴡ ᴇᴠᴇʀʏᴛʜɪɴɢ"
 
@@ -20,3 +21,4 @@ we r marklings, pls feed us.
 
 
 # haₕₐₕₐ.. ₕₐₕ... ₑᵥₑᵣᵧₜₕᵢₙ𝑔 ₕᵤᵣₜₛ.![gif alt](https://github.com/user-attachments/assets/192cee42-136f-4d94-90a3-304c5c0cf21f)
+
