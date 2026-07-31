@@ -3,7 +3,7 @@ $${\color{#d1cdb5}.‿͞‿͞‿͞‿͞‿͞୨୧‿͞‿͞‿͞‿͞‿.}$$
  $${\color{#a6a390}⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}$$
  $${\color{#ff3f00}𝒪𝓃ℯ \space \color{#ffa41c}𝒲𝒶𝓎 \space \color{#ff8}𝒪𝓇 \space \color{#94f000}𝒜𝓃ℴ𝓉𝒽ℯ𝓇}$$   $${\color{#a6a390}⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}$$
 
-<h1 align="center"> ${\color{#feec20}﹒﹏﹒ \color{black}ı \color{#feec20}l \color{black}l \color{#feec20}ı \color{black}﹒﹏﹒}$ <img width="516" height="521" alt="image" src="https://github.com/user-attachments/assets/d667fac9-cad0-469d-af98-3cebdcaf15da" />
+<h1 align="center"> ${\color{black}﹒﹏﹒ \color{#feec20}ı \color{black}l \color{#feec20}l \color{black}ı \color{#feec20}﹒﹏﹒}$ <img width="516" height="521" alt="image" src="https://github.com/user-attachments/assets/d667fac9-cad0-469d-af98-3cebdcaf15da" />
  ${\color{#feec20}﹒﹏﹒ \color{black}ı \color{#feec20}l \color{black}l \color{#feec20}ı \color{black}﹒﹏﹒}$<h1>
 
 <h1 align="center">"ʜᴇʟʟᴏ! ɪ'ᴍ ᴠᴇʀɪᴛʏ, ʏᴏᴜʀ ᴘᴇʀsᴏɴᴀʟ ʜᴇʟᴘᴇʀ ғʀɪᴇɴᴅ. ᴀsᴋ ᴍᴇ ᴀɴʏᴛʜɪɴɢ, ɪ ᴋɴᴏᴡ ᴇᴠᴇʀʏᴛʜɪɴɢ"
