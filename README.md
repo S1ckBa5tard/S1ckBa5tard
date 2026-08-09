@@ -1,3 +1,6 @@
+$${\color{white}𝚆𝚑𝚘 \space \color{white}𝚊𝚖 \space \color{white}𝚒???}$$
+$${ \color{lightgrey}⫘⫘⫘\color{#ff3f00}𝙼𝚊𝚛𝚔 \space \color{#ff3f00}𝙷𝚎𝚊♱𝚑𝚌𝚕𝚒𝚏𝚏 \space \color{white}𝚘𝚏 \space \color{white}𝚙𝚘𝚗𝚢𝚝𝚘𝚠𝚗 \space \color{white}𝚒𝚐😂\color{lightgrey}⫘⫘⫘}$$
+
 $${\color{#d1cdb5}.‿͞‿͞‿͞‿͞‿͞୨୧‿͞‿͞‿͞‿͞‿.}$$
 
  $${\color{#a6a390}⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}$$
@@ -15,7 +18,7 @@ $${\color{#d1cdb5}.‿͞‿͞‿͞‿͞‿͞୨୧‿͞‿͞‿͞‿͞‿.}$$
 
 $${\color{#5d26b8}P \color{#7b26b8}u \color{#8e26b8}r \color{#9a26b7}p \color{#ad26b5}s }$$
 <h1 align="center"><img width="498" height="498" alt="webu" src="https://github.com/user-attachments/assets/cd059fac-b656-4afb-848b-b47521173922" /></h1>
- ➻⪼U can find me near the bakery/ tmc/ unstable smp area. If u dont find me in any of these areas IM DEADDD haha jk im prob just wondering around, w friends or lost in my own world.
+ ➻⪼U can find me near the bakery/ tmc/ fnaf/ unstable smp area. If u dont find me in any of these areas IM DEADDD haha jk im prob just wondering around, w friends or lost in my own world.
  
 $${\color{#3224b5}M \color{#2536b5}a \color{#2540b5}r \color{#244ab5}k \color{#255ab5}e \color{#246ab5}r }$$
 <h1 align="center"><img width="429" height="377" alt="image" src="https://github.com/user-attachments/assets/a15aa530-c16e-4896-9f42-08b3fbb3ed39" /></h1>
@@ -28,5 +31,5 @@ $${\color{#3224b5}M \color{#2536b5}a \color{#2540b5}r \color{#244ab5}k \color{#2
 we r marklings, pls feed us.
 
 
-# haₕₐₕₐ.. ₕₐₕ... ₑᵥₑᵣᵧₜₕᵢₙ𝑔 ₕᵤᵣₜₛ.![gif alt](https://github.com/user-attachments/assets/192cee42-136f-4d94-90a3-304c5c0cf21f)
+
 
