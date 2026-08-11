@@ -31,5 +31,6 @@ $${\color{#3224b5}M \color{#2536b5}a \color{#2540b5}r \color{#244ab5}k \color{#2
 we r marklings, pls feed us.
 
 
+<img width="1280" height="1236" alt="image" src="https://github.com/user-attachments/assets/763a6016-6b93-418c-a4b9-0445161fdc65" />
 
-
+awww me and my sister's oc awww
