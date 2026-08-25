@@ -9,7 +9,7 @@ $${\color{#d1cdb5}.‿͞‿͞‿͞‿͞‿͞୨୧‿͞‿͞‿͞‿͞‿.}$$
 $${\color{#3224b5}M \color{#5d26b8}a \color{#7b26b8}r \color{#8e26b8}k \color{#9a26b7}e \color{#ad26b5}r }$$
 <h1 align="center"><img width="429" height="377" alt="image" src="https://github.com/user-attachments/assets/a15aa530-c16e-4896-9f42-08b3fbb3ed39" /></h1>
 
-╰┈➤ˎˊ˗ HELLO! call me mark or whatever u wanna idm. Im on pt 24/7 (why is this game so addicting) afk doing absolutely nothing unless im w my pooks\cant forget abt da twink, yoshi ofc,,, so feel free to w2i/c+h, i dont bite [not 100% sure abt that lelele].A bit of a shy guy but i ♡ making friends, so feel free 2 talk w me, id love to give u some company^_^.
+꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦╰┈➤ˎˊ˗ HELLO! call me mark or whatever u wanna idm. Im on pt 24/7 (why is this game so addicting) afk doing absolutely nothing unless im w my pooks\cant forget abt da twink, yoshi ofc,,, so feel free to w2i/c+h, i dont bite [not 100% sure abt that lelele].A bit of a shy guy but i ♡ making friends, so feel free 2 talk w me, id love to give u some company^_^.
 
 And if ur too scared to come up to me, leave a message in my ata! Ill make sure to reply to it whenever i can--- [ata](https://1dklolz.atabook.org)ˎˊ˗
 
@@ -20,8 +20,7 @@ And if ur too scared to come up to me, leave a message in my ata! Ill make sure 
  
 
 
-
-⁀જ➣Im an introvert, have mental issues & always struggling w sh!t so pls be patient w me. [-15 intwc, this oldass is NOT ready to pay child support yet]
+キ५༼ ⁀જ➣Im an introvert, have mental issues & always struggling w sh!t so pls be patient w me. [-15 intwc, this oldass is NOT ready to pay child support yet]
 
 
 
